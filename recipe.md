@@ -1,0 +1,4 @@
+To a mixing bowl, add the following ingredients.
+Use thick yogurt or hung curd here. If you only have homemade yogurt, then add 1 cup homemade yogurt to a thin muslin or cheese cloth. Squeeze off the excess whey and hang it for few hours. Mix everything well. The consistency of the marinade has to be thick.
+Add cubed paneer to the prepared marinade. Optional – Dice half small onion to 4 pieces & separate the layers. Dice half small bell pepper as well. Make sure the size of onion and bell pepper are almost the same as paneer. Crunchy onions and bell peppers impart a great texture and aroma to the final dish.
+Mix everything well. Rest aside in the fridge until the tikka masala gravy is ready.
